@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kp198
+- 👀 I’m interested in iOS App Development
+- 🌱 I’m currently diving deep into iOS app development
+- 💞️ I’m looking to collaborate on anything... Would love to learn new stuff :)
+- 📫 How to reach me linkedIn: https://www.linkedin.com/in/keerthika-priya-118519205
